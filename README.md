@@ -1,0 +1,1 @@
+# szpuatips.github.io
